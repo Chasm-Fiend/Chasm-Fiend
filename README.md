@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Chasm-Fiend
 - 👀 I’m interested in snapping my claws.
 - 🌱 I’m currently learning to snap my claws more vigorously.
-- 💞️ I’m looking to collaborate on a crab rave to Noisestorms song, Crab Rave.
+- 💞️ I’m looking to collaborate on a crab rave with my fellow Pincer Endowed individuals to Noisestorm's song, Crab Rave.
 - 📫 How to reach me: Pinch me. 
 
 <!---
